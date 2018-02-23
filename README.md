@@ -1,0 +1,2 @@
+# Virtual-Country
+For an underdeveloped nation to be come developed, i believe it can be done by engaging the new generation that embraces Technology to liberate themselves, get empowered and then they can challenge the status quo in dew time. Most people forget that most developing nation has a cabal that rules/leads and will do anything to maintain power thereby difficult for anyone to change their fortunes. It can be done, the industry is ripe for these
